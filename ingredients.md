@@ -1,4 +1,4 @@
-INGREDIENTS
+Jac's Cheese and Mushroom Risotto ingredients:
   
 1x
 2x

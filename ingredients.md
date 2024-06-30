@@ -1,8 +1,5 @@
 Jac's Cheese and Mushroom Risotto ingredients:
-  
-1x
-2x
-3x
+
 ½ tbsp Brown onion Chopped into small pieces
 1 bunch Parsley Fresh and chopped
 Extra virgin olive oil As much as necessary (EVOO)

@@ -8,4 +8,3 @@ The essential ingredient in this recipe are the following:
 *rice wine
 *extra-virgin olive oil
 
-# recipe

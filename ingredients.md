@@ -1,3 +1,5 @@
+Let's begin!
+
 Jac's Cheese and Mushroom Risotto ingredients:
 
 ½ tbsp Brown onion Chopped into small pieces
@@ -12,3 +14,5 @@ Cut into chunky pieces. You can also use your choice of veg/protein
 50 grams Parmigiano Reggiano Cheese 1.76oz. Must be grated
 1 L Vegetable stock 35.27oz
 1 tbsp Salt
+
+Enjoy my recipe!
